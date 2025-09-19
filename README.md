@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-🌱 # Misty Sanico
+🌱 # I'm Misty
 
 Writer, editor, and creative strategist building literary tools and digital spaces that support story, curiosity, and community.
 
